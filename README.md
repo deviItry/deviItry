@@ -9,5 +9,7 @@
 <a href="https://strange.atabook.org/" rel="nofollow">sign my atabook</a></br>
 </p>
 <p align="center">
+ <a href="https://rentry.co/marvelrivals" rel="nofollow">rentry.co/marvelrivals</a></br>
   </a>
 </p>
+
