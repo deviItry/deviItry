@@ -11,3 +11,14 @@
  <a href="https://rentry.co/marvelrivals" rel="nofollow">rentry.co/marvelrivals</a></br>
   </a>
 </p>
+
+<div align="center"><details><summary><b><p align="center">About Me</p></b></summary>
+  <p align="center">
+    I go by Dia(tron) or Ultron.<br>
+    I am 23, HeHim , I love Marvel & JJBA<br>
+   Due to my ailments, I find it hard to talk to people<br>
+  If I don't reply to you, don't take it personally please, it's hard for me.<br>
+  I have a lot of ships, but Doctor Strange x Ultron is my most favorite <br>
+  </p>
+  </div>
+</details>
