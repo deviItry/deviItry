@@ -12,7 +12,7 @@
   <p align="center">
  <img src="https://file.garden/ZlryIogXzRtJW5Bu/SU.png" width="280" height="260%"/>
 <p align="center">
-<a href="https://strange.atabook.org/" rel="nofollow">sign my atabook</a></br>
+<a href="https://ultron.atabook.org/" rel="nofollow">sign my atabook</a></br>
  <a href="https://rentry.co/marvelrivals" rel="nofollow">rentry.co/marvelrivals</a></br>
   </a>
 </p>
