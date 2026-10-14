@@ -34,3 +34,16 @@ New people tend to cause this more, so please bare with me if it seems I am 'int
    I am an adult, so I do not befriend minors, but you are welcome to speak to me, just nothing more.
   </a>
  </p>
+</details>
+
+  <p align="center">
+<details>
+  <summary>Art</summary><align="center">
+ 𐔌՞ ܸ.ˬ.ܸ՞𐦯 Sharing my Doctor Strange x Ultron Art <br>
+   <img src="https://file.garden/ZlryIogXzRtJW5Bu/DS/B1.png" width="130" height="260%"/> <img src="https://file.garden/ZlryIogXzRtJW5Bu/DS/B2.png" width="160" height="260%"/><br>
+   <img src="https://file.garden/ZlryIogXzRtJW5Bu/DS/1.png" width="170" height="260%"/> <img src="https://file.garden/ZlryIogXzRtJW5Bu/DS/2.png" width="170" height="260%"/> <img src="https://file.garden/ZlryIogXzRtJW5Bu/DS/S7.png" width="170" height="260%"/><br>
+   <img src="https://file.garden/ZlryIogXzRtJW5Bu/DS/5.png" width="170" height="260%"/> <img src="https://file.garden/ZlryIogXzRtJW5Bu/DS/6.png" width="170" height="260%"/> <img src="https://file.garden/ZlryIogXzRtJW5Bu/DS/4.png" width="170" height="260%"/>
+  </a>
+ </p>
+</details>
+
