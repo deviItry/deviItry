@@ -27,8 +27,10 @@ New people tend to cause this more, so please bare with me if it seems I am 'int
    it's out of habit mostly, but it's imperative in making me feel secure. <br>
   As well, I'm an extremely private person, and this reflects in my behavior. <br>
   Sometimes I may not respond, please don't take it personally, it's hard for me. <br>
+   Anyone is free to talk to me or interact, just don't think it's your fault if I seem flat.<br>
  <br>
    I love to draw and play games (mostly Marvel Rivals) <br>
    I have a lot of ships, but my main is Doctor Strange x Ultron <br>
+   I am an adult, so I do not befriend minors, but you are welcome to speak to me, just nothing more.
   </a>
  </p>
