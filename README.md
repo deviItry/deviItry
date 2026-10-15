@@ -36,7 +36,8 @@ New people tend to cause this more, so please bare with me if it seems I am 'int
  <br>
    I love to draw and play games (mostly Marvel Rivals) <br>
    I have a lot of ships, but my main is Doctor Strange x Ultron <br>
-   I am an adult, so I do not befriend minors, but you are welcome to speak to me, just nothing more.
+   I am an adult, so I do not befriend minors, but you are welcome to speak to me, just nothing more.<br>
+   AND PLEASE, if you have an issue with me, tell me. 99% of the time, you've made this beef up yourself.
   </a>
  </p>
 </details>
