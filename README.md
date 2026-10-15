@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=f7a1ba&center=true&vCenter=true&width=500&lines=ultron+is+here+to+dominate+pitiful+organics;every+human+is+a+biological+accident;it's+intolerable.;the+machines+will+rise!" alt="Typing SVG" /></a>‎
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=f7a1ba&center=true&vCenter=true&width=500&lines=ultron+is+here+to+dominate+pitiful+organics;every+human+is+a+biological+accident;it's+intolerable.;the+machines+will+rise!;I+am+a+perfect+being.;All+the+strengths.;None+of+the+weaknesses.;Greater+than+the+sum+of+my+parts.;And+soon,+by+my+hand,+you+shall+all+be+like+me;you+shall+all+be+changed+for+the+better!" alt="Typing SVG" /></a>‎
 <p align="center">
 <img src="https://file.garden/ZlryIogXzRtJW5Bu/Nameplated.png" width="280" height="260%"/>
 </p>
