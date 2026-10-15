@@ -12,7 +12,6 @@
 　ꣀꦌ　<img src="https://komarev.com/ghpvc/?username=uitrons&style=for-the-badge=plastic&color=f7a1ba&base=10265&label=i+am+a+robot" />　Ꮺ୧ <br>
  <p align="center">
   Rivals UID: 1617732501 <br>
-  (My user has a special character)
   <p align="center">
  <img src="https://file.garden/ZlryIogXzRtJW5Bu/SU.png" width="280" height="260%"/>
 <p align="center">
